@@ -41,6 +41,6 @@ Enlace a la carpeta: Ver código y archivos
 📬 Contacto
 
 LinkedIn: [Enlace]
-Correo: [jesus_chh@hotmail,com]
+Correo: [jesus_chh@hotmail.com]
 Ubicación: Sonora, México (Disponible para posiciones remotas)
 
